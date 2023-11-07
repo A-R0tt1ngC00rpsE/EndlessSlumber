@@ -78,6 +78,21 @@ my dni's!!
  kyojuro rengoku
 shinobu kocho
 urogi ^_^
+
+
+
+
+btw dont think im actually nice.. sorry. but this is how i treat SOME of my friends, depends how you act like. ur personality:D
+
+- RECLAIMABLE slurs.
+- honestly very rude ngl
+- i will be very annoying
+- most likely getting slurred every 2 hours.
+- amd sadly always sharing my dumbass screen on discord vc.
+- SOMETIMES inappropriate jokes about my favorite characters. i only say them 1-3 times a day.
+
+
+other than that, please tell me ur type of personality so i dont make u uncomfy^_^
 <!--
 EndlessSlumber/EndlessSlumber is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
