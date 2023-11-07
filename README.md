@@ -73,6 +73,11 @@ my dni's!!
 
 
 - psst, btw if you wanna be friends my discord is: miaumreow >w<
+
+- this is Random but here are my comfs if u want 2 know:3
+ kyojuro rengoku
+shinobu kocho
+urogi ^_^
 <!--
 EndlessSlumber/EndlessSlumber is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
