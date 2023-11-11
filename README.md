@@ -1,3 +1,4 @@
+
 hello ! i mainly go by seki .
 
 
@@ -26,9 +27,21 @@ my dnis irl AND in ponytown + discord.
 - pick mes. EX: embarrassing your female friend in front of a male on PURPOSE
 - Nazis.
 - muzan kibutsiji irls/kins.
+=======
+hello i go by jonah/seki!
+
+
+
+
+my ints
+
+
+
+
 
 
 extra things about me ig.
+
 
 - im lithromantic
 - and genderfluid
@@ -40,11 +53,17 @@ extra things about me ig.
 irls i am, and used to be,
 - used to be a fresh irl
 - ink irl too.
+=====
+
+
+
+
 
 currently a mix of 
 - killer
 - error
 - and dust irl
+
 
 
 more for ponytown!
@@ -56,19 +75,48 @@ more for ponytown!
 my comfs
 - kyojuro rengoku
 
+
+
+
+
+
 - mitsuri kanroji
+
 
 - error sans
 
 - killer sans
 
+
+past irls
+
+
 - dust sans
 
+
 - fresh sans
+
+
 
 - urogi
 
 
+ints
+
 
 ;; last edited, Sat-11, November 3:18
 :D 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
