@@ -1,99 +1,74 @@
-- okok hi,i have no idea how this works but whatev. my name is cau (originally)!! :D
+hello ! i mainly go by seki .
 
 
-- currently interested in: kny,digital circus,cod,krew,ut,bsd and more !..
+im a minor, please remember that,
+- i can make lots on inappropriate jokes, if you are not  comfortable with that, please tell me
+- i can be annoying, im deeply sorry.
+- although that doesn't mean i cant get pissed or annoyed myself
 
 
+my ints 4 ponytown
+- error,fresh, nightmare, dust or killer cosplayers, quite litteraly any1 BUT lust sans cosplays.
+- wny1 who not in the dni
 
-- i usually take inspo without asking, so if you think i copied, just ask if i took inspo please .
-
-
-- i get can get TOO comfortable easily, even if we just met . so im trying to fix that,
-
- 
-- although because of that please don't see me as a weird or stupid person, although i can be really stupid sometimes .
-
-
-- 9-19 yrs can int! its okay if your Below 13 since that doesn't mean we cant be friends! :3
+about me!
+- im a killer irl!/kin.(referring to the sans.)
+- not taken.
 
 
-- i apolagize if this sounds stupid or isn't how im supposed to do it .
+my dnis irl AND in ponytown + discord.
+- homophobic people
+- racist people
+- people who make hating a specific person their whole personality.
+- pedophiles
+- com/pro shippers, EX: people who ship minor x adult, enemy x enemy, or personal x animal
+- attention seekers.
+- pick mes. EX: embarrassing your female friend in front of a male on PURPOSE
+- Nazis.
+- muzan kibutsiji irls/kins.
 
 
-- i mispell ALOT . so tell me if you dont understand something i said
+extra things about me ig.
+
+- im lithromantic
+- and genderfluid
+- +ase
+- i have errors phobia, IN REAL LIFE. and no its not kawaii or lucky.
+- i usually yap about how horrible my family is, i got abused by them>_< (not a vent.)
 
 
-- i don't like talking much, so ill just say whatever matches the topic .
+irls i am, and used to be,
+- used to be a fresh irl
+- ink irl too.
 
- 
-- please ask BEFORE you vent .
-
-
-- i can get uncomfy easily, so please be cautious when your around me . ^_^
-
- 
-- im SOMETIMES childish, if i ever act like that with you. im absolutely sorry
+currently a mix of 
+- killer
+- error
+- and dust irl
 
 
-- asian! :D
+more for ponytown!
+- i like cuddling/sitting next to people or friends not talking.
+- please dpnt leave me out pr just laeave w another friend w/o telling me. simply say you're going w another friend please!
+- i can get emotional over stupid little things, and sometimes not.
 
 
-- i use ":3" alot, if you start to find it annoying please tell me!!
+my comfs
+- kyojuro rengoku
 
+- mitsuri kanroji
 
-- :3
+- error sans
 
+- killer sans
 
-here are my ints!!
+- dust sans
 
-- Undertale fans/irls
-- krew fans
-- kny fans
-- ages 9-21 i like to be around people who are about my age, or aged that im comfortable with .
-- non-pro shippers, yuck!
-- people who dont ask for personal information
+- fresh sans
 
-
-
-my dni's!!
-
-- pro shippers
-- ages over 26 ig
-- problematic people
-- rareship haters (depends on the ship ig)
-- really really REALLY new ponytown people, im sorry:(
-- thats it!! ^0^ have a great day.night
-
-
-
-
-- :333
-
-
-^_^ 
-
-- psst, btw if you wanna be friends my discord is: miaumreow >w<
-
-- this is Random but here are my comfs if u want 2 know:3
- kyojuro rengoku
-shinobu kocho
-urogi ^_^
+- urogi
 
 
 
-
-btw dont think im actually nice.. sorry. but this is how i treat SOME of my friends, depends how you act like. ur personality:D
-
-- RECLAIMABLE slurs.
-- honestly very rude ngl
-- i will be very annoying
-- most likely getting slurred every 2 hours.
-- amd sadly always sharing my dumbass screen on discord vc.
-- SOMETIMES inappropriate jokes about my favorite characters. i only say them 1-3 times a day.
-
-
-other than that, please tell me ur type of personality so i dont make u uncomfy^_^
-<!--
-EndlessSlumber/EndlessSlumber is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+;; last edited, Sat-11, November 3:18
+:D 
