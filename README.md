@@ -50,6 +50,14 @@ more for ponytown + Discord
 - btw when i say im a "killer" irl be aware that erm, killer is CANONLY flirty + romantic ig..
 
 
+PFP MEANINGS. MAKE SURE TO READ THIS AND SEE MY PFP TO SEE THE MEANING!
+- if i have a error pfp, most likely means im bored or uncomfortable. so ig it means you can int
+- and ink pfp means im happy/hyper
+- an horror pfp means im sleeping or on discord
+- a shattered dream means im playing roblox kr editing something such as: Discord pfp, discord server, or GitHub profile/about me
+
+
+
 
 my comfs
 - kyojuro
