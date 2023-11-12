@@ -41,10 +41,11 @@ irls i currently am
 
 
 
-more for ponytown!
+more for ponytown + Discord 
 - i like cuddling/sitting next to people or friends not talking.
 - please dpnt leave me out pt just l3ave w another friend w/o telling me. simply say you're going w another friend please!
-
+- ill be making a carrd soon:D
+- i make inappropriate jokes, if you are uncomfortable with them please tell me!
 
 
 
