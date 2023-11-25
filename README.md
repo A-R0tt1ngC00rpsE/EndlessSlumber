@@ -1,140 +1,174 @@
+haii! this is for pt (ponytown) and discord! ⌒ ✧
 
-haiaiiaiaiaiaiaiaiaiiaiaiaiaiaiaiiaiaiaiaiaiiaiaiaiaiauauauuua,
-name is Hector/crimson/seki or steel./q
-
-
-
-
-
-my ints
-- other ut irls
-- non disgusting people!!
-- ages 9-21 
-
-
-my dnis, in discord + ponytown
-- com/pro ships
-- ages 23+ and 9-(aka 9 under.)
-
-
-
-
-yapps
-- im lithromantic
-- and genderfluid
-- +ase even if i don't act like it
-- calm person!! very awkward tho, things like "uhm" "er..?" "mhm" make me think that yiu dont like me/ judging me. depends on how you use them ig!!
-- i have errors phobia irl! you may ask questions on how it feels ^0^
-- MINOR.
-- artist:33 im better at drawing on paper tho. ^w^
-
-
-irls i am, and used to be,
-- used to be a fresh irl
-- ink irl too.
-=====
-
-
-
-
-irls i currently am
-- killer
-- error
-- dust
-- cross
-=====
-
-
-more for ponytown + Discord 
-- i like cuddling/sitting next to people or friends not talking.
-- please dpnt leave me out pt just l3ave w another friend w/o telling me. simply say you're going w another friend please!
-- ill be making a carrd soon:D
-- i make inappropriate jokes, if you are uncomfortable with them please tell me!
-- i like being queiet, bUT if you eanna int, ill be awkward unless you beat me to it first.
-
-
-PFP MEANINGS. MAKE SURE TO READ THIS AND SEE MY PFP TO SEE THE MEANING!
-- if i have a error pfp, most likely means im bored or uncomfortable. so ig it means you can int
-- and ink pfp means im happy/hyper
-- an horror pfp means im sleeping or on discord
-- a shattered dream means im playing roblox kr editing something such as: Discord pfp, discord server, or GitHub profile/about me
-
-↑ useless honestly, i forgot i had this. . jst act likr i don't have itt!! :33
-
-
-
-my comfs
-- kyojuro
-- error sans
-- killer sans
-- dust sans
-- fresh sans
-- urogi
-- mitsuri
-
-
-thibgs i can get uncomfortable with:
-- getting called "love" or "babe", love is ok is we're close friends or smth. and BABE is absolutely not allowed no matter what, never will be.
-- ggegwgwvegwgwgwgwgaffwrwrrwgwf people who sexualize their friends.
-- annoying people, yes i know i said i CAN be annoying, tayts just if ive know you for a long time tho + i will only do it if i am H Y P E R. and hyper only.
-- people who shit jonah marshall x adam murray. this is a ship that the creator doesn't like anymore in the fandom "the Mandela catalogue" . you WILL loose my respect.
-
-carrd will appear {[HERE}} soon!! (never)
-
-
-ERM, that shildo was from like,,, February..?? a new one down here :D
-
-
-yaps ( things about m3)
-- i will leave you if you get annoying or just do something stupid/embarrassing.
-- emrmrmerrm ://
-- i hate, and REALLY hate attention seekers AND pick mes /srs. yes there if a difference between them.
-- i will say the randomest shit out of nowhere.
-- y9u dont really have to keep a conversation w me 2 be around me, i dont mind having a silent friend pr person sitting w me!! i am more than happy to b w any1 who has a "friend crush" on me ig, ayyayayayy.
-- probably gonna speak goofy like "h33ll0 hø0w R u^_<??" when i feel like it, or when im jst bired in general
-- HALF OF THE SHIT I SAY IS SARCASM/SATIRE.
-- I sometimes replace s with z , EXM: "that'z zo co0l ngl"
-- already made a slur for Americans and brits, womp womp cry about it fucket.
-
-
-IRL'ZZ
-- cross
-- dust
-- prob killr?
-- dream-ish
-
-
-DNI'Z
-- P3dophiles, yuçkk!
-- disgusting peopl3
-- highly w3ird pe0ple, sorry! womp w0mpp!!1!
-- proships/comships
-- people over 21 and under 9, but since i have a love-hate relationship/p w kids ig i can make it under 7??
-- attention seekers
-- pick mes
-- people w no creativity (copycats)
-- groomers.
-- faggots ;-;/J0KE. SORRIY >w<
-- people who use NON RECLAIMABLE slurs, unless i give you the Hispanic slur pass�
-
-
-INT'ZZZ
-- cool people
-- UNDERTALE FANS PLEASE
-- kny fans
-- RHE MANDELA CATALOGUE PELAPSOWOEOWOSKEJSJWYHES
-- bSD FANS NEOWOWOW.
-- quiet people
-- people who go by crimson/ink/Rosalie + or just majestical names iG!1!
-- error cosplayers
-- dust cosplayers
-- ESPECIALLY DREAM COSPLAYERS HEHAHSBWHSGHASGEGVSVSGSGDVSFAFSGDGSG what.
-- womp womp
+About me ! ✦
+- undertale / kny / genshin / honkai / crk fan! not specifically just these but alot more actu :33 !!
+- minor
+- lithromantic + gender fluid ◜ ͡ ◜◝
+- silly person !! ★ (very..)
 - wa wa
+- groomedB4:/
+- more will be added LATER ←←!
 
 
-yap yap 
-- discord ois "ultimatehomophobic" DW tho im a queer!1!>_<
-- Roblox is "cutie_patootie9111"
-- my very very old tt account, im sorry but like i dont recommend risking it. sonce its old my cringe phases where WILD. VERY FUCKING WILD./dontRiskItMcMuffin
--- #gross
+｡*☆∴｡ INTS / INTERACT'S ｡∴☆*｡ (discord & PT)
+- killermare shippers!1!1
+- nightmare's/PONYTOWN ONLY.
+- nice people
+- dream irls(THE SANS.)
+- ut fans!
+- countryHuman fans (DEPENDS, thin ice!!)
+- more will be added once i remember my other ints . <3
+
+
+｡★*ﾟﾟ*★ DNIS ∵ DO NOT INTERACT★*ﾟﾟ*★｡ 
+- killermare haters, keep your opinions 2 yourself bud!!
+- pj(paperjam) x fresh (urrc)
+- Lust's DNI /SRS
+- ProShippers/ComShippers, EXMP: Dream x nightmare ( DreamMare ) / Dream x killer ( Driller ) / Frisk x sans ( frans )← ship any of these, please DNI. 
+- people who sit by me, ONLY if i dislike you/or don't know you, ask first please!!
+- catalaya / Aphrodite / phonii / valentie
+
+𖡎݂ꪳ⃗ IRL'S / KINS←(?) ᢆᚼᕽ
+- Cross irl ✦
+- ≥ M A Y B E ‹ a dream IRL . still tryna figure it out ig!! ★
+
+···ະ̽ if ur friends name is here, u can int when i have "dniufof" ▹꒲࿐ྀུ···
+- ghost
+- aya/ayana
+- vio
+- fritz / aspen / crimson
+- rose
+- kiwi
+- saè
+- crescent 
+
+
+◦ᮀᨘ۬․ٰ｡˚༷｡ people who can int when i have "dniuc"&"dniuf"˚༷➮
+- rose (uf)
+- crimson ig?? (uc)
+- saè (uc)
+- ghost (uc)
+- aya (uf)
+- ans tge rest r uf
+
+ ⁺⑅ ˚dniurc 𖡼.𖤣 dniuvc ^_^𖥧𖠋𖧷₊
+- ghost
+- kiwi
+- saè
+- aya
+- vio
+
+
+╭ ◜◝ ͡ ◜◝ ͡  ◜◝ ╮
+     specifically. GROOMERS DNI. + GROOMER DEFENDERS/SRS
+╰ ◟◞ ͜  ◟ ͜   ◟◞ ╯
+
+ please ask to sit/talk w me if i have "dniuvc/dniuc"                 O  womp womp
+
+                      °.
+
+。.。:+* ゜ ゜゜ *+:。.。:+* ゜ ゜゜ *+:。
+
+    irls , info , about other friends! 
+
+
+    ✧ 
+    ❉✹✦ꔛ
+ayana (discord & ponytown 2)
+
+
+about her !! ╭ ◜◝
+
+•*¨*•¸.•*¨*•¸.•*¨*•¸.•*¨*•
+- nitro giver :3c (uvc)
+- barely plays pt.. :/
+- [✦] 16 yrs, her / she 
+
+
+°.✩┈┈∘*┈୨ DNIS / DO NOT INTERACT ୧┈*∘┈┈✩.°
+- Groomers
+- people who use people 4 things that cost ACTUAL MONEY.
+- predators/pedophiles
+- dsmp fans
+- weirdos
+- disgusting people
+- proships/comships
+- people named Valentine / catalaya 
+
+*｡⋆❤⃛・。._**INTS / INTERACTS*｡⋆❤⃛*。.。・**｡
+- Genshin fans
+- ayaka fans(?)
+- creepypasta fans/cosplayers irl and onlin
+- nice people
+- 
+
+˳ ₒ  ◦  °° ◦ IRLS / KINS(?) ₒ ˳˳ ₒ
+- / in progress
+
+◡∘◡∘◡∘◡∘◡∘◡∘୨ dniuc ♡ dniuvc/dniurc ୧∘◡∘◡∘◡∘◡∘◡∘◡
+- ghost
+- seki / hector / jonah / crimson / tony 
+- saè?
+- vio
+
+
+᠃◍⃪𖤘֥❜𖣢ׅ FAVS
+- vio
+- seki
+- ghost
+- sae
+
+
+
+ghost (discord + pt)
+
+about him
+░❀⃟   ⃟⁞⃟⟢
+- trans
+- goes by HE/HIM, respect that.
+- they dont like being touched on pt/ not liking strangers being close to him w/o seki, vio or anyone that he is close with.
+- minor , i will NOT say their age, theyre not comf w that.
+
+
+
+╳⃟⃝⃟╳꧇❁〬‧໋݊𖠵ฺ۟ fandoms theyre in
+- cod
+- i forgot the name bur i think it was Kombat something, but the one w johnny CAGE. lolololol:33 (i actually forgot what fandom it was hwlp.)
+
+𖨆︎᪥︎ , dnis 𑁍︎       
+- com/pro ships
+-  people under 10 (age)
+-  seki,aya + vios enemys/ people they dislike
+-  countryHuman cosplays/fans
+- people named "phonii / Valentine / Aphrodite / catalaya"
+
+
+saè
+
+ ▓⃟❀⃟▒ about them!!  ▒⃟❀⃟▓
+- female , she/her they/them or probably any??
+- age is still in progress/unknown
+- barely plays pt too
+- gojo fan frfr!1!1
+
+
+
+𔘓 DNIS  ִֶ
+- ngl the dnis everyone has here.
+
+
+ 𖡼໋᳝֘·𖦸໋᳝݊·ુ INTS
+
+
+
+     in progress, after this is vios and kiwi, crimson/aspen has a patreon. aka they have their own!!
+
+  -   about vio
+⊰᯽⊱┈──╌❊╌──┈⊰᯽⊱
+
+･:*:･ INTS
+
+*꒦꒷ִֶָ·* DNIS         
+
+
+- more will be added L A T ER
