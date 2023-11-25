@@ -1,6 +1,6 @@
 haii! this is for pt (ponytown) and discord! ⌒ ✧
 
-About me ! ✦ (#1)
+About me ! ✦ (#1) <3
 
 - undertale / kny / genshin / honkai / crk fan! not specifically just these but alot more actu :33 !!
 
@@ -14,6 +14,9 @@ About me ! ✦ (#1)
 - groomed
 
 - more will be added LATER ←←!`
+
+
+            ------—---—  ;; ↶ ↷ 
 
 
 ｡*☆∴｡ INTS / INTERACT'S ｡∴☆*｡
